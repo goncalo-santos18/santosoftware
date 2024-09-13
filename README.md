@@ -1,4 +1,3 @@
-![image](https://github.com/user-attachments/assets/09e08b95-dd62-4e1c-8b72-b1f6c2ee4377)
 👋 Hi, I’m Gonçalo Santos
 
 🔭 I’m currently university stuff
