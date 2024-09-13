@@ -13,5 +13,5 @@
 
 📫 How to reach me goncalo7santos@gmail.com or @santos188 on discord
 
-:face_with_monocle:  Fun fact: Swimmer
+⚡ Fun fact: Swimmer
 
